@@ -12,7 +12,7 @@ Here we finally begin our long trip. However, Alzheimer’s Disease has still no
 (Phase 2) October 2, 2079
 This segment is the exact same as the last with the only difference being that Alzheimer’s Disease has successfully burrowed into the patients mind. However, the patients memory is still in perfect condition. The only problem being with very old memories when they were a young child. Other than that, everything is still alright. Recollection still takes no effort to recall. By the end of stage, we successfully transition to stage 1. The harbinger of disaster.
 
-[STAGE ONE](https://www.youtube.com/watch?v=3PP9SikoH1s)\
+[STAGE ONE](https://www.youtube.com/watch?v=3PP9SikoH1s)
 
 # STAGE 2
 (Phase 1) March 3, 2080
@@ -25,4 +25,4 @@ This phase is similar to the last phase but the difference being that more memor
 (Phase 3) November 1, 2080
 This phase marks the very beginning of Medical Stage 2, where the same old ridiculous thought dosen’t leave our patients mind. A thought that everything is off. The pieces start to click together, the idea starts making sense! “Maybe i’m overthinking it!” The patient would once again pass this idea off. more memories and recollection here continue to get hazy but still recognizable as the most specific details of these memories begin to blur. All the recollection here are the truly last memories of content before we transition to stage 3.
 
-
+[STAGE TWO](https://www.youtube.com/watch?v=f2fqsuYAvs0)
