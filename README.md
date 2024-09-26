@@ -1,5 +1,6 @@
 # Everywhere At The End Of An Unsaved Game
-## Gabriel D. Callo 9 - Arrowsmith --- 
+
+# Gabriel D. Callo 9 - Arrowsmith --- 
 ---
 **Everywhere At The End Of An Unsaved Game: Reincarnate is a a fanmade EATEOT project which shows what effects dementia will do to a senile mind in the modern ages. It will also touch on their mood, recollection, and brain. This project is a remaster of the original EATEOAUG, with inspiration from projects such as Anywhere At The End Of The Charger (Original and Platinum), Grandiose Recollection and Beautiful Years and Memories Begin From Nowhere. This project will aim to sampling media from the years 1930 to today.**
 
