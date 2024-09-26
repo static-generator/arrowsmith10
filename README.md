@@ -8,6 +8,7 @@ THIS PROJECT IS HOSTED BY GAB WITH MEMBERS OF HAMSTER, OSHIC, MIGHTYZEALOT, CBG,
 # STAGE 1
 (Phase 1) June 23, 2079
 Here we finally begin our long trip. However, Alzheimer’s Disease has still not tainted itself on our patients mind. In this segment, nothing is wrong. Recollection is still as bright as day. Memories here take no effort to recall as they reminisce about the golden days with their family and friends. There is also nothing wrong about their mood, all the good memories make for a happy life. Symptoms about Alzheimers Disease are nonexistent with the only signs of disorientation being about old age. 
+
 (Phase 2) October 2, 2079
 This segment is the exact same as the last with the only difference being that Alzheimer’s Disease has successfully burrowed into the patients mind. However, the patients memory is still in perfect condition. The only problem being with very old memories when they were a young child. Other than that, everything is still alright. Recollection still takes no effort to recall. By the end of stage, we successfully transition to stage 1. The harbinger of disaster.
 
