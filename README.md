@@ -26,3 +26,35 @@ This phase is similar to the last phase but the difference being that more memor
 This phase marks the very beginning of Medical Stage 2, where the same old ridiculous thought dosen’t leave our patients mind. A thought that everything is off. The pieces start to click together, the idea starts making sense! “Maybe i’m overthinking it!” The patient would once again pass this idea off. more memories and recollection here continue to get hazy but still recognizable as the most specific details of these memories begin to blur. All the recollection here are the truly last memories of content before we transition to stage 3.
 
 [STAGE TWO](https://www.youtube.com/watch?v=f2fqsuYAvs0)
+
+# STAGE 3
+(Phase 1) January 4, 2081
+This phase starts off on the last track of stage 2. This phase is very similar to the last phase of stage 2, the only difference being that our patients mood is a bit uneasy, and the realisation that they are in fact not over thinking it, but they are right. Something is wrong. This horrifying realisation later leads to our Alzheimers diagnosis (C3). Finally, our patients mood does a whole 180, the once cheerful and optimistic patient is now melancholic and angry. Throughout this stage is where the five stages of grief play out, denial, anger, bargaining, depression, and the bitter acceptance. Memories begin to blur, and decay, as more and more effort gets put into remembering such memories. Of course, this effort always go into naught.
+
+(Phase 2) May 23, 2081
+As the disease progresses, it continues to take a toll on our patient, physically, mentally, and emotionally. Memories and recollection continue to worsen and drop in detail. Effort in remembering also takes a lot more effort, although this effort will not help much in remembering all the specific details. Memories continue to drop in quality and gets more and more distortion. Their personality also gets a hit, as it also vanishes and decomposes along with memories. The five stages of grief continue to progress. Nothing will ever be the same again.
+
+(Phase 3) August 29, 2081
+Here marks the start of late stage 3. Our patient forgets more and more about details and memories, the quality of such memories continues to swan dive. Names, friends, birthdays, dates, and more continue to be swallowed by the abyss. Even his most cherished memories begin to decay and distort. We also begin to transition to stage 4. Sooner or later, our patient finally embraces the bitter acceptance, an acceptance his future will never be the same again, an acceptance that he will be gone soon, an acceptance that will continue to wreck his life.
+
+[STAGE THREE](https://www.youtube.com/watch?v=86jUD1akSI0)
+
+# STAGE 4
+
+**TO BE RECOLLECTED**
+# STAGE 5
+
+**TO BE RECOLLECTED**
+# STAGE 6
+
+**TO BE RECOLLECTED**
+# STAGE 7
+
+**TO BE RECOLLECTED**
+# STAGE 8
+
+**TO BE RECOLLECTED**
+
+# TERMINAL LUCIDITY
+
+**TO BE RECOLLECTED**
