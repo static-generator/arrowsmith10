@@ -5,6 +5,9 @@
 
 THIS PROJECT IS HOSTED BY GAB WITH MEMBERS OF HAMSTER, OSHIC, MIGHTYZEALOT, CBG, AND MORE.
 
+**We do not claim nor own any of the samples and visuals in this video, all the credit goes to their respective owners.**
+
+
 # STAGE 1
 (Phase 1) June 23, 2079
 Here we finally begin our long trip. However, Alzheimer’s Disease has still not tainted itself on our patients mind. In this segment, nothing is wrong. Recollection is still as bright as day. Memories here take no effort to recall as they reminisce about the golden days with their family and friends. There is also nothing wrong about their mood, all the good memories make for a happy life. Symptoms about Alzheimers Disease are nonexistent with the only signs of disorientation being about old age. 
